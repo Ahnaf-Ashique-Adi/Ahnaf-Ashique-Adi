@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ahnaf-Ashique-Adi
-- 👀 I’m interested in game dev, app dev, cyber security,reseach,AL and circuits
+- 👀 I’m interested in game dev, robotics, cyber security,reseach,AL , circuits and research.
 - 🌱 I’m currently working as an student reseacher
 - 💞️ I’m looking to collaborate with every like minded people
 - 📫 How to reach me ahnafashiqueadi@gmail.com or Ahnaf Ashique Adi at facebook
